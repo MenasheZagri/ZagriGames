@@ -1,0 +1,2 @@
+# ZagriGames
+Index Privacy Notes
